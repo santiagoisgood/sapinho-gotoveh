@@ -16,4 +16,4 @@
   
 # Support
 
-  -  sapinho#5870
+  -  https://discord.gg/PX8WG8Hb
